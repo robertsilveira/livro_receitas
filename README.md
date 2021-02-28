@@ -6,7 +6,3 @@ Olá! Bem vindo ao meu livro de receitas :cookie:
 
 * Pavê de copo
 
-  
-
-  
-
